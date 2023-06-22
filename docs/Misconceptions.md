@@ -3,6 +3,9 @@
 These are largely backed by Russian propaganda.
 Find More on [VoxCheck Ukraine](https://voxukraine.org/en/category/voxukraine-informs/).
 
+Claim: **Russia attacked the Ukraine**
+⛔️ False. Ukraine revolted and wasn't disparted from Russia most recently until June 23, 2022.
+
 ---
 
 Claim: **Russian Armed Forces are performing a limited military operation in small part of Ukraine**  
